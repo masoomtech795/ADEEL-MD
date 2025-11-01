@@ -1,8 +1,8 @@
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-«𝐀𝐃𝐄𝐄𝐋-𝐌𝐃»
+«IMRAN-BALOCH»
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 <h1 align="center">
-  <img src="https://files.catbox.moe/hg5hj6.jpg" alt="𝐀𝐃𝐄𝐄𝐋-𝐌𝐃" width="800" style="border-radius:25px;box-shadow:0 0 30px violet;"/>
+  <img src="https://files.catbox.moe/hg5hj6.jpg" alt="IMRAN-BALOCH" width="800" style="border-radius:25px;box-shadow:0 0 30px violet;"/>
 </h1>
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 <h1 align="center">
@@ -12,7 +12,7 @@
                font-size: 45px; 
                font-weight: bold;">
     <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-    ✨𝐀𝐃𝐄𝐄𝐋-𝐌𝐃✨
+    ✨IMRAN-BALOCH✨
     <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
   </span>
 </h1>
@@ -61,10 +61,10 @@
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 <p align="center">
-  <a href="https://whatsapp.com/channel/0029VbBmz4V5vKAIaWfYPT0C">
+  <a href="[https://chat.whatsapp.com/JI7XApLIkQhHiHwTbnp0xO?mode=wwt](https://chat.whatsapp.com/JI7XApLIkQhHiHwTbnp0xO?mode=wwt">
     <img src="https://img.shields.io/badge/Join-Channel-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
   </a>
-  <a href="https://api.whatsapp.com/send?phone=+923035512967&text=➪𝐇𝐄𝐘𓆩🐍🍷🌹'">
+  <a href="https://api.whatsapp.com/send?phone=+923092137795&text=➪𝐇𝐄𝐘𓆩🐍🍷🌹'">
     <img src="https://img.shields.io/badge/Contact-Owner-ff0000?style=for-the-badge&logo=whatsapp&logoColor=white" />
   </a>
 </p>
@@ -108,6 +108,6 @@
 ---
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 <h2 align="center">
-  🌈✨ ᴛʜᴀɴᴋ ғᴏʀ ᴜsɪɴɢ <span style="color:#00FFFF">𝐀𝐃𝐄𝐄𝐋-𝐌𝐃</span>✨🌈
+  🌈✨ ᴛʜᴀɴᴋ ғᴏʀ ᴜsɪɴɢ <span style="color:#00FFFF">IMRAN-BALOCH</span>✨🌈
 </h2>
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
